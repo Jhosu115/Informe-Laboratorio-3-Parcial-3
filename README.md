@@ -58,7 +58,7 @@ como rectangular.
 
 [![1.jpg](https://i.postimg.cc/2jdKh5dL/1.jpg)](https://postimg.cc/s1XmRsN3)
 
-[![Whats-App-Image-2021-09-12-at-10-44-23-PM.jpg](https://i.postimg.cc/0yhfLgdq/Whats-App-Image-2021-09-12-at-10-44-23-PM.jpg)](https://postimg.cc/9DtZ7nnx
+[![Whats-App-Image-2021-09-12-at-10-44-23-PM.jpg](https://i.postimg.cc/0yhfLgdq/Whats-App-Image-2021-09-12-at-10-44-23-PM.jpg)]
 
 
 ### **2.Transforme a su forma rectangular:**
