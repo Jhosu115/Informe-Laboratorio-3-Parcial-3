@@ -80,6 +80,30 @@ como rectangular.
 
 ### **Resuelva las operaciones anteriores por medio de la calculadora y compare resultados.**
 
+<div align="center">
+  
+**Polar**
+  
+  [![Whats-App-Image-2021-09-13-at-9-31-34-AM.jpg](https://i.postimg.cc/3xh08Cf2/Whats-App-Image-2021-09-13-at-9-31-34-AM.jpg)](https://postimg.cc/jL8SvNbj)
+  
+  [![Whats-App-Image-2021-09-13-at-9-31-55-AM.jpg](https://i.postimg.cc/9MDr8xzH/Whats-App-Image-2021-09-13-at-9-31-55-AM.jpg)](https://postimg.cc/0Mqkr0pV)
+  
+  [![Whats-App-Image-2021-09-13-at-9-32-19-AM.jpg](https://i.postimg.cc/rsWzcKSh/Whats-App-Image-2021-09-13-at-9-32-19-AM.jpg)](https://postimg.cc/64WBf6bR)
+  
+  [![Whats-App-Image-2021-09-13-at-9-32-42-AM.jpg](https://i.postimg.cc/T3Q1R8DX/Whats-App-Image-2021-09-13-at-9-32-42-AM.jpg)](https://postimg.cc/nXjpkP2d)
+
+**Rectangular**
+  
+  [![Whats-App-Image-2021-09-13-at-9-27-38-AM.jpg](https://i.postimg.cc/ZnrY2XS2/Whats-App-Image-2021-09-13-at-9-27-38-AM.jpg)](https://postimg.cc/bSwj2Cd9)
+  
+  [![Whats-App-Image-2021-09-13-at-9-28-05-AM.jpg](https://i.postimg.cc/RhQ9Xf1z/Whats-App-Image-2021-09-13-at-9-28-05-AM.jpg)](https://postimg.cc/V063NJH7)
+  
+  [![Whats-App-Image-2021-09-13-at-9-28-53-AM.jpg](https://i.postimg.cc/zX78hCXC/Whats-App-Image-2021-09-13-at-9-28-53-AM.jpg)](https://postimg.cc/ykDM4SRx)
+  
+  [![Whats-App-Image-2021-09-13-at-9-28-53-AM.jpg](https://i.postimg.cc/zX78hCXC/Whats-App-Image-2021-09-13-at-9-28-53-AM.jpg)](https://postimg.cc/ykDM4SRx)
+  
+  
+</div>
 
 # 5 VIDEO 
 
